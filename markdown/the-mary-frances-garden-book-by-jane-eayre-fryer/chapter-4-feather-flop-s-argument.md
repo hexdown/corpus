@@ -1,4 +1,4 @@
-## Chapter 4.Feather Flop’s Argument
+## Chapter 4. Feather Flop’s Argument
 
 NEITHER of the children had noticed the head
 of the big rooster as he peered curiously

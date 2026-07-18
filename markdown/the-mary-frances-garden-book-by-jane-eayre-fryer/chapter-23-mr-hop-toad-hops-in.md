@@ -83,12 +83,12 @@ and I’ll tell you—if you don’t interrupt—
 > ### The Story of the Hop Toad
 >
 > My mother told me that one lovely day early in May she
-> awoke from her winter's nap. Oh, yes, that's what we do in
+> awoke from her winter’s nap. Oh, yes, that’s what we do in
 > winter—sleep in the ground.
 >
 > Well, my mother awoke, and went happily hopping down
-> to the meadow pond to lay some eggs. Perhaps you don't
-> know them when you see them—toads' eggs. They look like
+> to the meadow pond to lay some eggs. Perhaps you don’t
+> know them when you see them—toads’ eggs. They look like
 > tiny black pills in strings of transparent jelly. This jelly either
 > drops to the bottom of the pond or fastens to water weeds.
 >
@@ -112,34 +112,34 @@ and I’ll tell you—if you don’t interrupt—
 > tails which we used for swimming.
 >
 > Now, Feather Flop, if you interrupt again I shall not finish
-> my story! No, we didn't eat our tails; of course not. Our tails
+> my story! No, we didn’t eat our tails; of course not. Our tails
 > were absorbed into our bodies to help with their growth.
 >
 > When we were about an inch long we had but stump tails,
 > and found we had to come to the surface of the water for more
 > air every day, we decided we were no longer tadpoles, but real
-> hop toads. We swam to the shore of the pond and hopped away.</p></div>
+> hop toads. We swam to the shore of the pond and hopped away.
 >
-> ### Toads' Enemies
+> ### Toads’ Enemies
 >
 > Many of my little brothers and sisters, alas! were eaten by
 > snakes, and—yes, Feather Flop—gobbled up by crows.
 >
-> No, Feather Flop, dogs wouldn't bite us, because—do you
+> No, Feather Flop, dogs wouldn’t bite us, because—do you
 > see the warts on my back? They are very useful to me. When
 > I want to disgust an enemy, I can send out of those warts a disagreeable,
 > biting secretion, and I am dropped pretty quickly.
 >
 > No, of course, we cannot make warts on people’s hands.
 > No toad ever did anything of the kind! It’s a horrible untruth.
-> Certainly we seem cold to people's touch. That's because our
+> Certainly we seem cold to people’s touch. That’s because our
 > blood is of the same temperature as the air. Their blood is
 > warmer.
 >
 > Well, as I said, almost any enemy drops one of us grown-up
-> toads quickly but snakes! They don't seem to mind us at
+> toads quickly but snakes! They don’t seem to mind us at
 > all. Ugh! when I see one I either hop away with all my might,
-> or I bury myself in the earth. No, Feather Flop, I can't teach
+> or I bury myself in the earth. No, Feather Flop, I can’t teach
 > you how! I do it with my hind legs. See how I can kick!
 >
 > There are two more ways in which we escape our enemies.
@@ -160,14 +160,14 @@ and I’ll tell you—if you don’t interrupt—
 >
 > Speaking of food, Feather Flop—have you eaten any of
 > those delicious tent caterpillars? No? Well, you should try
-> some. Don't you like them? They stick to your throat? Oh,
-> I didn't know that, but I've noticed that you didn't seem to
-> eat them, nor "thousand-leggers." That's the reason I said
+> some. Don’t you like them? They stick to your throat? Oh,
+> I didn’t know that, but I’ve noticed that you didn’t seem to
+> eat them, nor “thousand-leggers.” That’s the reason I said
 > I was of more benefit than you to the garden.
 >
 > Just listen until I tell you what I had this early morning for
 > supper. No, not breakfast! I told you I feed at night. Early
-> morning brings my supper time! Well, these are what I had:</p>
+> morning brings my supper time! Well, these are what I had:
 > - 6 cutworms
 > - 5 thousand leg worms
 > - 6 sow bugs

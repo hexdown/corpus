@@ -43,9 +43,9 @@ Mary Frances as soon as she recovered from her astonishment.
 Feather Flop turned over. Then he began to
 mutter sleepily:
 
-> "I don't care what people say,
+> “I don’t care what people say,
 >
-> I shan't get up and crow to-day;
+> I shan’t get up and crow to-day;
 >
 > I’ve never laid in bed—so then!
 >

@@ -95,10 +95,6 @@ They are the—
 > other dead matter for food; otherwise, these things would keep on
 > piling up!
 >
-> It is a good thing that fungi use dead trees and leaves and
-> other dead matter for food; otherwise, these things would keep on
-> piling up!
->
 > I wish to tell you of one kind of fungus, though, which lives
 > on living material in trees. It is called the—
 >
@@ -119,12 +115,12 @@ They are the—
 > it is torn, it leaves an open wound—just as when you scratch your
 > finger or your arm.
 >
-> There are other fungi which you've seen oftener than toad
+> There are other fungi which you’ve seen oftener than toad
 > stool. They are—
 >
 > ### Molds
 >
-> You've often seen the mold which comes on bread which has
+> You’ve often seen the mold which comes on bread which has
 > been left in a rather dark, warm, moist place.
 >
 > The mold comes from the thousands of germs in the dust in
@@ -189,6 +185,6 @@ were canned ones.”
 
 “Oh, they are safe enough,” Bet smiled.
 
-Then the fairy clock struck the half-hour.</p>
+Then the fairy clock struck the half-hour.
 
 ---
